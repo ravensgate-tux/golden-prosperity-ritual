@@ -101,11 +101,10 @@
 ## 🖼️ 写真による実例
 
 ### 使用例：Deviant Moon Tarot
-![Deviant Moon Tarotでの金運上昇の儀式](Deviant-moon-tarot.jpg)
+<img src="Deviant-moon-tarot.jpg" width="400">
 
 ### 参考例：Universal Tarot
-![Universal Tarotでの参考例](Universal-tarot.jpg)
-
+<img src="Universal-tarot.jpg" width="400">
 ## 📚 参考文献
 
 本儀式は、チック・シセロおよびサンドラ・タバサ・シセロ『タロット・タリスマン』に基づいていますが、Ravensgateの実践に合わせ、本棚神殿での実行に適した形で再構成しています。
