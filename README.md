@@ -48,60 +48,30 @@
 **Invocation to Hekate for Prosperity**  
 *(Based on the Four Cards in the Golden Dawn Triad Spread)*
 
-> O Hekate, Torchbearer of the Crossroads,  
-> Guardian of the Threshold between Seen and Unseen—  
-> I stand before Your shrine in humility and trust,  
-> With heart open like the Page of Cups.  
-> （おお三叉の女神ヘカテよ、交差点に火を掲げる者よ、  
-> 顕れたものと隠されたものの間に立つ門の守り手よ——  
-> 私は謙虚と信頼をもってあなたの神殿の前に立ちます。  
-> そしてカップのペイジのように、心を開いて。）
+> O Hekate, Torchbearer of the Crossroads,
+> Guardian of Seen and Unseen—
+> I stand before Your shrine with an open heart,
+> Clear in my intent: not for greed, but for flow.
+> （交差点の光を持つヘカテよ、
+> 顕れたものと隠されたものの守り手よ——
+> 私は開かれた心であなたの神殿の前に立ちます。
+> 願いは貪欲のためでなく、流れのために。）
 
-> I offer my intent, clear and true:  
-> Not for greed, but for sufficiency,  
-> Not for hoarding, but for flow.  
-> May my desire align with Your will.  
-> （私の願いは明確で真実です：  
-> 貪欲のためではなく、満ち足りるために、  
-> 蓄えるためではなく、流れるために。  
-> どうか私の願いが、あなたの御意と調和しますように。）
+> Let the Page of Cups awaken inspiration,
+> That my path may begin in truth and hope.
+>（カップのペイジが霊感を目覚めさせ、
+> 私の道が真実と希望のうちに始まりますように。）
 
-> As the Empress nurtures the garden of life,  
-> So may You nurture my efforts.  
-> May the seeds I plant in thought and deed  
-> Find root in the fertile soil of Your blessing.  
-> （女帝が生命の園を育むように、  
-> あなたが私の努力を育んでくださいますように。  
-> 思考と行動により私が植えた種が、  
-> あなたの祝福という豊かな土壌に根を下ろしますように。）
+> As the Empress nurtures, may my work be blessed.
+> As the Three of Pentacles shows, let effort bear fruit.
+> May it rise like the Ace—abundance made real.
+> （女帝が育むように、私の努力も祝福されますように。
+> ペンタクルの3が示すように、努力が実を結びますように。
+> そしてそれがペンタクルのエースのように現実となりますように。）
 
-> As the Three of Pentacles teaches,  
-> Let my work be skilled, my hands steady,  
-> Let collaboration and structure lead to growth,  
-> And effort unfold in harmony.  
-> （ペンタクルの3が教えるように、  
-> 私の仕事が熟練し、手が安定していますように。  
-> 協力と構造が成長を導き、  
-> 努力が調和の中で展開しますように。）
-
-> Let it culminate in the Ace of Pentacles—  
-> A gift from the unseen into the seen,  
-> A tangible sign of abundance.  
-> May it be the first of many, and never the last.  
-> （それがペンタクルのエースとなって結実しますように——  
-> 見えざるものから現れた贈り物、  
-> 豊かさの具体的なしるし。  
-> それが最初の一つであり、決して最後になりませんように。）
-
-> O Hekate, Key-Bearer and Light in Darkness,  
-> Bless this rite, receive this offering,  
-> And let Your wisdom guide my wealth  
-> To come in peace, and flow in justice.  
-> So mote it be.  
-> （おおヘカテよ、鍵を持ち、闇に光を灯す者よ、  
-> この儀式を祝福し、この捧げものを受け入れてください。  
-> あなたの叡智が私の富を導きますように——  
-> 平和のうちに訪れ、正義のうちに流れますように。  
+> Guide my wealth in peace and justice.
+> So mote it be.
+> （私の富を平和と正義のうちに導いてください。
 > そのようになりますように。）
 
 ## 🖼️ 写真による実例
