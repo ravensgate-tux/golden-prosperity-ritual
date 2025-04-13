@@ -52,29 +52,29 @@
 > Guardian of Seen and Unseen—
 > I stand before Your shrine with an open heart,
 > Clear in my intent: not for greed, but for flow.
-
+>
 > （交差点の光を持つヘカテよ、
 > 顕れたものと隠されたものの守り手よ——
 > 私は開かれた心であなたの神殿の前に立ちます。
 > 願いは貪欲のためでなく、流れのために。）
-
+>
 > Let the Page of Cups awaken inspiration,
 > That my path may begin in truth and hope.
-
+>
 >（カップのペイジが霊感を目覚めさせ、
 > 私の道が真実と希望のうちに始まりますように。）
-
+>
 > As the Empress nurtures, may my work be blessed.
 > As the Three of Pentacles shows, let effort bear fruit.
 > May it rise like the Ace—abundance made real.
-
+>
 > （女帝が育むように、私の努力も祝福されますように。
 > ペンタクルの3が示すように、努力が実を結びますように。
 > そしてそれがペンタクルのエースのように現実となりますように。）
-
+>
 > Guide my wealth in peace and justice.
 > So mote it be.
-
+>
 > （私の富を平和と正義のうちに導いてください。
 > そのようになりますように。）
 
